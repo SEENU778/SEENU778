@@ -11,10 +11,11 @@
 
 𝙲𝚘𝚗𝚗𝚎𝚌𝚝 𝚆𝚒𝚝𝚑 𝙼𝚎
 
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/-srini-vasan-d) 
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/-srini-vasan-d)
+[![Outlook](https://img.shields.io/badge/Microsoft_Outlook-0078D4??style=plastic&logo-appveyorstyle=for-the-badge&logo=microsoft-outlook&logoColor=white)](mailto:seenu1122@outlook.com)
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/srini_778) 
 [![Gmail](https://img.shields.io/badge/Gmail-D14836??style=plastic&logo-appveyorstyle=for-the-badge&logo=gmail&logoColor=white)](mailto:seenu2222696@gmail.com)
-[![Outlook](https://img.shields.io/badge/Microsoft_Outlook-0078D4??style=plastic&logo-appveyorstyle=for-the-badge&logo=microsoft-outlook&logoColor=white)](mailto:seenu1122@outlook.com)
+
 
 𝙻𝚊𝚗𝚐𝚞𝚊𝚐𝚎𝚜 𝚊𝚗𝚍 𝚃𝚘𝚘𝚕𝚜
 
