@@ -5,7 +5,7 @@
 <p align="center">
   <!-- Typing SVG by SEENU778- https://github.com/SEENU778/readme-typing-svg -->
 <a href="https://github.com/SEENU778/readme-typing-svg">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=EXO+2&size=23&duration=4000&pause=1000&color=FFFDD0&center=true&vCenter=true&random=false&width=480&lines=Data+Analytics;PYTHON%2C+SQL%2C+PBI%2C+EXCEL%2C+ML;Always+Learning+New+Things" alt="Typing SVG" /></a></p><h3 align="left"> 
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=EXO+2&size=23&duration=4000&pause=1000&color=808080&center=true&vCenter=true&random=false&width=480&lines=Data+Analytics;PYTHON%2C+SQL%2C+PBI%2C+EXCEL%2C+ML;Always+Learning+New+Things" alt="Typing SVG" /></a></p><h3 align="left"> 
 </a>
 𝘐'𝘮 𝘱𝘢𝘴𝘴𝘪𝘰𝘯𝘢𝘵𝘦 𝘋𝘢𝘵𝘢 𝘈𝘯𝘢𝘭𝘺𝘵𝘪𝘤𝘴. 𝘈𝘭𝘭 𝘤𝘰𝘥𝘪𝘯𝘨 𝘱𝘳𝘰𝘫𝘦𝘤𝘵𝘴 𝘢𝘳𝘦 𝘣𝘶𝘪𝘭𝘵 𝘧𝘳𝘰𝘮 𝘵𝘩𝘦 𝘨𝘳𝘰𝘶𝘯𝘥 𝘶𝘱, 𝘧𝘳𝘰𝘮 𝘱𝘭𝘢𝘯𝘯𝘪𝘯𝘨 𝘢𝘯𝘥 𝘥𝘦𝘴𝘪𝘨𝘯𝘪𝘯𝘨 𝘢𝘭𝘭 𝘵𝘩𝘦 𝘸𝘢𝘺 𝘵𝘰 𝘴𝘰𝘭𝘷𝘪𝘯𝘨 𝘳𝘦𝘢𝘭-𝘭𝘪𝘧𝘦 𝘱𝘳𝘰𝘣𝘭𝘦𝘮𝘴 𝘸𝘪𝘵𝘩 𝘤𝘰𝘥𝘦. 𝘈𝘭𝘭 𝘤𝘰𝘯𝘵𝘦𝘯𝘵 𝘪𝘴 𝘣𝘶𝘪𝘭𝘵 𝘵𝘩𝘦 𝘴𝘢𝘮𝘦 𝘸𝘢𝘺, 𝘧𝘳𝘰𝘮 𝘪𝘥𝘦𝘢𝘵𝘪𝘰𝘯 𝘢𝘯𝘥 𝘱𝘭𝘢𝘯𝘯𝘪𝘯𝘨, 𝘢𝘭𝘭 𝘵𝘩𝘦 𝘸𝘢𝘺 𝘵𝘰 𝘧𝘪𝘯𝘢𝘭𝘪𝘻𝘪𝘯𝘨 𝘵𝘩𝘦 𝘤𝘰𝘯𝘵𝘦𝘯𝘵 𝘸𝘪𝘵𝘩 𝘢𝘳𝘵𝘪𝘴𝘵𝘪𝘤 𝘵𝘰𝘶𝘤𝘩𝘦𝘴. </h3>
 
