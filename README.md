@@ -65,4 +65,4 @@
 
 
 ### Profile views counter 
-<a href="https://u8views.com/github/SEENU778"><img src="https://u8views.com/api/v1/github/profiles/103832217/views/day-week-month-total-count.svg"></a>
+[![SRINIVASAN D profile views](https://u8views.com/api/v1/github/profiles/103832217/views/day-week-month-total-count.svg)](https://u8views.com/github/SEENU778)
